@@ -1,1 +1,1 @@
-Kenyamodel.github.io
+Kenya model
