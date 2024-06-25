@@ -1,1 +1,1 @@
-Kenya model
+Kenya-model
